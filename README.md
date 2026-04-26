@@ -1,1 +1,1 @@
-génère un power point avec un fond thématique parcours citoyen avec différent image / fond 
+je suis au collège en 3ème , j'ai suivi la formations psc1 de 1 journée , je doit faire un oral pour le brevet a ce sujet fait moi un power point avec 10 diaporama sur le contenu de la formation avec des images et en conclusion ce que j'ai retenu et ce que j'apliquerai dans ma vie d'adulte
