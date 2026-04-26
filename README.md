@@ -1,1 +1,1 @@
-rien de spéciale , peux tu examiner un script pour moi ?
+créer moi un pdf sur le psc1
