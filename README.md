@@ -1,1 +1,1 @@
-créer un powerpoint avec 30 diaporama pour apprendre le luau sur roblox 
+tu peux générer quoi comme type fichier
